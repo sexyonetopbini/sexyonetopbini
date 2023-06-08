@@ -1,10 +1,14 @@
-- 👋 Hi, I’m @sexyonetopbini
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+𝐄𝐱𝐭𝐫𝐞𝐦𝐞팸 인원모집합니다 
 
-<!---
-sexyonetopbini/sexyonetopbini is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+ㅣ가입 조건
+• 거래금액 1500만 원 이상
+• 거래횟수 180 이상
+• 거래기간 12개월 이상
+
+ㅣ가입 절차
+• 찬반 투표
+• 관리진의 재량에 프리패스
+• 무사고 극신용 프리패스
+
+문의는 아래 링크로 주세요
+https://open.kakao.com/o/gPZ1RLjf
